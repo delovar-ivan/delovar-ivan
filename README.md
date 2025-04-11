@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @delovar-ivan
 - 👀 I’m interested in programminng
-- 🌱 I’m currently learning backend and want to stay backend - developer
+- 🌱 I’m currently learning backend and want to become backend - developer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me tg: @delovarof
 - 😄 Pronouns: сиськи, базуки, чипсы
